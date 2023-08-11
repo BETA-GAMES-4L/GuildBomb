@@ -11,3 +11,5 @@ No Administrator Priveliges Required!!!!
 7. Once All Steps are Completed, a new window will open with A Variety of Options To Destroy the Server!
 
   🔥 HAVE FUN WITH GUILD-BOMB! 🔥
+
+https://github.com/FX-Bomb/GuildBomb/assets/127607663/e5aca055-4926-4780-a189-95c82414d09b)
